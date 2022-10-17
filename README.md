@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @HMGIlyas
+- 👀 I’m interested in coding in general.
+- 📫 Reach me on my Gmail : Hammougua.i@gmail.com
